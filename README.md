@@ -1,4 +1,5 @@
 Bem vindo ao meu perfil no GitHub!
+
 • Sou pixel artista de jogos e estudo HTML/CSS.
 
 𝕲𝖗𝖔𝖜 𝖙𝖍𝖊 𝖑𝖊𝖌𝖊𝖓𝖉
